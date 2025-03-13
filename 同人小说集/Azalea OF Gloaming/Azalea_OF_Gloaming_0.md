@@ -1,3 +1,5 @@
+[下一篇](./Azalea_OF_Gloaming_1.md)  [合集](../同人目录.md)
+
 # Azalea OF Gloaming
 
 作者： Lacrimosas（北航）
